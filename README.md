@@ -347,7 +347,7 @@ Passionate about
 - LinkedIn: https://www.linkedin.com/in/huzaifa-ansari7001
 - YouTube: www.youtube.com/@AIwithHuzaifaAnsari
 - Instagram: https://www.instagram.com/aiwithhuzaifaansari
-- FaceBook: facebook.com/profile.php?id=61590314584702
+- FaceBook: https://www.facebook.com/aiwithhuzaifaansari
 
 ---
 
